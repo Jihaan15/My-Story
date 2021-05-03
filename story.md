@@ -1,0 +1,1 @@
+Harry Potter is a magical boy who survived an incident against an evil wizard called Voldemort . Many years later he get's admission in a wizard school . 
